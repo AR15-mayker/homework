@@ -7,3 +7,6 @@
 Таня: Почему торговый договор не был ратифицирован?
 
 ### Карикатуру 
+
+![image](https://github.com/user-attachments/assets/b53ed6be-c7ba-43b8-9c76-f0cb90419528)
+
